@@ -1,2 +1,2 @@
 # August2022
-25th August 2022
+24th august 2022 in readme
